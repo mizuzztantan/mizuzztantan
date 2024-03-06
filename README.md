@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mizuzztantan, a mizuki stan, swiftie, and a hybe artist stan, a txt ult
 - 👀 I’m interested in journalism, and mostly coding, or CDP !!
-- 🌱 I’m currently learning science tech, or journ ^
+- 🌱 I’m currently learning science tech, or journ ^ (ps. im bad at science.)
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me (ps. i do not know how herhue)
 - 😄 Pronouns: she/her or they/them !!
